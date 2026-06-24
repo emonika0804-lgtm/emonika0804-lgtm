@@ -23,5 +23,5 @@ AI & ML Enthusiast |<br>Full-Stack Developer | <br>M.Sc(AL&ML) Student | <br>Bui
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
-On Wed, Jun 24, 2026 at 9:56 PM Krishna Mohan <mohankrishnagym2005@gmail.com> wrote:
+
 https://www.linkedin.com/in/monika-e-239899401/
