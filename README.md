@@ -24,4 +24,3 @@ AI & ML Enthusiast |<br>Full-Stack Developer | <br>M.Sc(AL&ML) Student | <br>Bui
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
 
-https://www.linkedin.com/in/monika-e-239899401/
