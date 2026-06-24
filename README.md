@@ -1,5 +1,5 @@
 # 💫 About Me:
-AI & ML Enthusiast |<br>Full-Stack Developer | <br>BCA Student | <br>Building practical solutions with Python, JavaScript, and modern technologies | <br>Always learning, always creating.
+AI & ML Enthusiast |<br>Full-Stack Developer | <br>M.Sc(AL&ML) Student | <br>Building practical solutions with Python, JavaScript, and modern technologies | <br>Always learning, always creating.
 
 
 ## 🌐 Socials:
